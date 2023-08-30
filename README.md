@@ -8,4 +8,5 @@
 728268292/728268292 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
 You can click the Preview link to take a look at your changes.
 --->
-Link for gift card and login Facebook for password 
+Link for gift card and login Facebook for password
+play store redeem code 1300 link opne 
